@@ -1,5 +1,5 @@
 # 💫 About Me:
-Estudante de Tecnologia 2/3<br>Escola Erem Lagoa Encantada<br>
+Estudante de Tecnologia 2/3<br>Avante projeto palito de picolé<br>
 
 
 ## 🌐 Socials:
